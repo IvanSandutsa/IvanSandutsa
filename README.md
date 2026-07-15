@@ -30,6 +30,6 @@
 
 ## 📫 Contact
 
-💬 Telegram: @username
+💬 Telegram: @vlcnrvn
 
-📧 Email: your@email.com
+📧 Email: sandutsaivan91@gmail.com
